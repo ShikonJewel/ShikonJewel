@@ -1,16 +1,5 @@
-<img width="736" height="213" alt="Made by me, credit if reposted_-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/770a1b8d-d085-4747-8c7a-48616ca5b060" />
+<img width="600" height="310" alt="Shiranui (Yumekuro)__fliter--gold-sunset__channel--all__mode--screen" src="https://github.com/user-attachments/assets/1f142ba7-3169-4b1f-82dd-4205e09cdf64" />
 
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jim+Nightshade&pause=1000&color=F79736&width=435&lines=%22-If+it's+okay%2C+won't+you+leave+it+to+me%3F+I'm+pretty+confident+in+my+god%22)](https://git.io/typing-svg)
 
-<img width="736" height="699" alt="eu amo o blot-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/25ae8ec7-3af2-4df1-8fc6-23ee548576b7" />
-
-
-<img width="736" height="414" alt="_ (14)-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/fb2612a1-bdf7-4e72-a7b6-54aef2bb63c7" />
-
-
-
-
-
-
-
-
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jim+Nightshade&duration=1&pause=1000&color=F79736&width=435&lines=Basic+dni+criteria+%2B+under+13+dni)](https://git.io/typing-svg)
